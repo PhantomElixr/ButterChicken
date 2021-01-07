@@ -1,0 +1,11 @@
+#Ingredients
+- Chicken
+- Onion
+- Garlic
+- Ginger
+- Onion
+- Tumeric Powder
+- Hot Water
+- Cream/Milk
+- Butter Chicken Masala
+- Oil
